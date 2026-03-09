@@ -54,7 +54,6 @@ Busco uma **oportunidade de estágio em Tecnologia da Informação ou Desenvolvi
 
 📧 Email: **danilopraseres2007@email.com**  
 💼 LinkedIn: https://www.linkedin.com/in/danilo-praseres-350bb2388  
-💻 GitHub: https://github.com/danilopraseres
 
 ---
 
